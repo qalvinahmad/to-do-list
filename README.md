@@ -2,7 +2,7 @@ https://www.buymeacoffee.com/alvinahmad
 
 # Download App On
 
-https://www.amazon.com/gp/product/B0CWRXN336
+https://www.amazon.com/gp/product/B0CYSZM1BF
 
 # to-do-list: maylist 🗓️
 
